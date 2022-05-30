@@ -1,0 +1,1 @@
+# glido-privacy-policy
